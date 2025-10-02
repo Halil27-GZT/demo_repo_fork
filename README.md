@@ -1,5 +1,6 @@
 # Demo Repo
-Grüße von Halil!
+Changing this line to produce conflicts. Modified by Galina. Grüße von Halil!
+
 
 ## Lines for PR practice
 Line 1
