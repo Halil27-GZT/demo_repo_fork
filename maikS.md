@@ -1,1 +1,3 @@
 Grüße von Maik
+
+Am frühen Morgen, wenn das Haus noch still ist, schleicht sich der erste Duft von frisch gebrühtem Kaffee durch die Küche. Jürgen sitzt am Tisch, seine Hände umklammern die warme Tasse, und während er den kräftigen Geruch einatmet, erinnert er sich an seine Kindheit. Damals war der Kaffeeduft ein Zeichen dafür, dass der Tag wirklich begonnen hatte. Die ersten Sonnenstrahlen fallen durch das Fenster, draußen wacht die Welt langsam auf – doch für Jürgen beginnt der Tag erst richtig mit dem ersten Schluck seines Kaffees. Für einen kurzen Moment scheint alles möglich, solange der Kaffeeduft das ganze Haus erfüllt.
